@@ -2,4 +2,4 @@
 
 i finally got a macbook im so excited yay
 
-i can code heavy
+i can code heavy now
