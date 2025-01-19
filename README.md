@@ -7,3 +7,5 @@ i can code heavy now
 i can start today but its a sunday
 
 i haven't been getting time to work
+
+gonna design 
