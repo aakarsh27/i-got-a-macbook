@@ -10,4 +10,4 @@ i haven't been getting time to work
 
 gonna design some really sites now
 
-or maybe find
+or maybe find my niche in coding
