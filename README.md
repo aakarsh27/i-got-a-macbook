@@ -12,4 +12,4 @@ gonna design some really sites now
 
 or maybe find my niche in coding
 
-probably gonna start s
+probably gonna start an s
