@@ -14,4 +14,4 @@ or maybe find my niche in coding
 
 probably gonna start an sql repository
 
-i should start
+i should probably start
