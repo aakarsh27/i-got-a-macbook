@@ -16,4 +16,4 @@ probably gonna start an sql repository
 
 i should probably start a journal on github
 
-time to create a repository
+time to create a repository for
