@@ -19,4 +19,3 @@ i should probably start a journal on github
 time to create a repository for SQL
 
 need to cut nails for fast typing
-
